@@ -1,2 +1,2 @@
 # Recovering from COVID 
-Still witing for result
+Still not got for result
