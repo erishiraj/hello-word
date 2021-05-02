@@ -1,2 +1,2 @@
 # Recovering from COVID 
-Know feeling better 
+feeling better 
