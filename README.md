@@ -1,2 +1,2 @@
 # Recovering from COVID 
-Know i am feeling good.
+Now i am feeling good.
