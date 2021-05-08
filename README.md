@@ -1,2 +1,2 @@
 # Finnaly Recover from COVID
-Thanks good
+Thanks 🙏 god
