@@ -1,2 +1,1 @@
-# Finnaly Recover from COVID
-Thanks 🙏 god feeling good
+# All is well
